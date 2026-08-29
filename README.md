@@ -1,1 +1,1 @@
-I'll add the deatils l8r <:)
+still working on it just taking a smol break :p
